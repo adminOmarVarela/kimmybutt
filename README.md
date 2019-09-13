@@ -1,2 +1,2 @@
 # kimmybutt
-open shop
+One Stop Shop Online Hot Spot
